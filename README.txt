@@ -1,0 +1,1 @@
+Licenza copyright: Spazio agli astri INC
